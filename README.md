@@ -2,9 +2,9 @@
 
 - About me
   - 🧶 I like to crochet.
-  - 🌙 Always tired with a messed up sleep schedule.
+  - 🌙 Always tired with a messed-up sleep schedule.
   - 🎮 I like video games.
-  - ☕ I don't like coffee. I am sorry.
+  - ☕ Tea over coffee.
   - 😔 "Horible" speller.
   - 🐲 Favorite animals are dragons.
   - 😭 Existential.
