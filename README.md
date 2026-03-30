@@ -5,9 +5,6 @@
   - 🌙 Always tired with a messed-up sleep schedule.
   - 🎮 I like video games.
   - ☕ Tea over coffee.
-  - 😔 "Horible" speller.
   - 🐲 Favorite animals are dragons.
-  - 😭 Existential.
-  - 🔇 Poor speaker.
-  - 🔆 Likes to have really high brightness on my laptop.
-  -  ♀️ Pronouns: She/her.
+  - 🤔 Easily confused and easily stressed.
+  - 🔆 Likes to have really high laptop brightness.
