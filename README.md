@@ -1,6 +1,6 @@
 ## Hello!
 
-I'm Nina Dong, a current student at UC Davis.
+I'm Nina, a current student at UC Davis.
 
 - Here's a few rapid facts about me:
   - 🧶 I like to crochet and my favorite things to make are amigurumis of cute animals or video game characters
